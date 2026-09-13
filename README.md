@@ -6,3 +6,6 @@ There is 2 versions in releases so choose yours.
 HAVE A NICE GAME!!
 READ ME BRO READ MEEEEE 
 READ MEEEEEEE!!
+VRO
+VROC
+VRP
