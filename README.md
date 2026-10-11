@@ -13,3 +13,4 @@ Yo i js realized this game is shit
 really
 WTF
 Yo im learning c++ for 3 months now and still making those shitty games
+sadas
